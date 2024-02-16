@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gtsogkas73
+- 👀 I’m interested in learing how to code
+- 🖥️ I like building computers
+- 🍕 Pizza rules!!!
